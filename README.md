@@ -2,6 +2,7 @@
 
 ## My Interests
 * Bread, Baking, and Sandwiches
+* Wine
 * Surfing 
 * Backpacking
 * Climate/Sustainability
