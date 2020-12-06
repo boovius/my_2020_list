@@ -35,3 +35,4 @@ So generally things relating to those topics I’ll very much appreciate and be 
 * [A Warlord’s Memoir Is Surprisingly Modern and Charming, When It’s Not Gruesome - The New York Times](https://www.nytimes.com/2020/11/30/books/review-babur-nama.html?action=click&module=Editors%20Picks&pgtype=Homepage)
 * [The most important science fiction books of the last 15 years - Polygon](https://www.polygon.com/21516173/best-new-science-fiction-books-scifi-last-15-years) (I’ve read/reading Ancillary Justice, Windup Girl, Three Body Problem, The Martian, and Hunger Games — so avoid those)
 * Something on 20th century China
+* [7 subs book](https://www.amazon.com/Super-Upsetting-Cookbook-About-Sandwiches/dp/0804186413)
