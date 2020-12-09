@@ -3,15 +3,16 @@
 ## My Interests
 * Bread, Baking, and Sandwiches
 * Wine
-* Surfing 
+* Coffee
+* Surfing
 * Backpacking
 * Climate/Sustainability
 	* books
-	* stocks/mutual-funds/etfs that are invested in businesses in clean energy or sustainable practices 
+	* stocks/mutual-funds/etfs that are invested in businesses in clean energy or sustainable practices
 * Writing
 * Sci-Fi
 * Photography
- 
+
 So generally things relating to those topics I’ll very much appreciate and be interested in
 
 ## Items
@@ -24,7 +25,7 @@ So generally things relating to those topics I’ll very much appreciate and be 
 * Bombas or Merrell running/hiking socks
 	* [Men’s Socks – Bombas](https://bombas.com/collections/mens-socks?filter=activity_running&filter=activity_hiking)
 	* [Hiking Socks for Men | Merrell](https://www.merrell.com/US/en/mens-hiking-athletic-socks/#prefn1=bestFor&prefv1=Hiking)
-* Wireless charging-pad, wide enough for (phone, AirPods case, and maybe something else)  
+* Wireless charging-pad, wide enough for (phone, AirPods case, and maybe something else)
 
 
 ### Subscriptions
@@ -36,3 +37,4 @@ So generally things relating to those topics I’ll very much appreciate and be 
 * [The most important science fiction books of the last 15 years - Polygon](https://www.polygon.com/21516173/best-new-science-fiction-books-scifi-last-15-years) (I’ve read/reading Ancillary Justice, Windup Girl, Three Body Problem, The Martian, and Hunger Games — so avoid those)
 * Something on 20th century China
 * [7 subs book](https://www.amazon.com/Super-Upsetting-Cookbook-About-Sandwiches/dp/0804186413)
+* [Bill Gates 5 books from this year](https://www.gatesnotes.com/About-Bill-Gates/Holiday-Books-2020?WT.mc_id=20201208100000_EOYBooks2020_BG-EM_&WT.tsrc=BGEM)
